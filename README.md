@@ -1,5 +1,5 @@
 ### 💡 Fun Fact
-> *"I was born in 2015, three years after the Galaxy S3 dropped. My mom handed me an old phone when I was little, and that iconic UI stuck with me forever. Proof that legend never dies!"*  
+> *"I was born in 2015, three years after the Galaxy S4 dropped. My mom handed me an old phone when I was little, and that iconic UI stuck with me forever. Proof that legend never dies!"*  
 > — **Kozimu Entertainment CEO**
 
 ---
